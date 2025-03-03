@@ -180,6 +180,6 @@ This project showcases SQL skills for aspiring data analysts. Connect with me fo
 
 ### 🌐 Stay Connected
   
-💼 **LinkedIn** – [Professional networking](https://www.linkedin.com/in/raviyadav855)  
+💼 **LinkedIn** – [Professional networking](https://www.linkedin.com/in/raviyadav8055/)  
 
 💡 **Thank you  Let's grow together!** 🚀
